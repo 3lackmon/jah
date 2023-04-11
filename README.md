@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @ElijahAllenBlackmon
-- 👀 I’m interested in Backend Development
 - 📫 @elijahblackmon1010@gmail.com
