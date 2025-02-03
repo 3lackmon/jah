@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @ElijahAllenBlackmon
-- 📫 @elijahblackmon1010@gmail.com
+i’m jah
